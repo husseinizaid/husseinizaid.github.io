@@ -23,6 +23,12 @@ This repo is a clone of https://github.com/varadbhogayata/varadbhogayata.github.
 
 ![image](https://github.com/husseinizaid/husseinizaid.github.io/assets/144946719/c6d0541c-2085-4888-a7b4-9038df6d71dd)
 
+### Activity 4
+
+![image](https://github.com/husseinizaid/husseinizaid.github.io/assets/144946719/dc9cb015-299a-42f4-9b0c-9686f467f55c)
+
+![image](https://github.com/husseinizaid/husseinizaid.github.io/assets/144946719/d443937f-55df-43f9-aa9d-352c478210b2)
+
 
 
 
